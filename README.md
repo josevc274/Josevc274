@@ -72,7 +72,7 @@ These roles taught me how to lead, work under pressure, and continuously learn â
 ## ðŸ“« Let's connect!
 
 - GitHub: [@josevc274](https://github.com/josevc274)
-- Email: [jcdriver27@gmail.com](mailto:jcdriver27@gmail.com)
+- Email: [jvcdriver27@gmail.com](mailto:jvcdriver27@gmail.com)
 
 ---
 
